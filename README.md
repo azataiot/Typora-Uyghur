@@ -1,0 +1,1 @@
+# Typora-Uyghur-Theme
